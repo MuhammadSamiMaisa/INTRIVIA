@@ -15,3 +15,6 @@ Kesan = cluster intrivia aku sangat seru dengan kakak2 mentor/fasil yang asik as
 
 Pesan = semoga kita ga cuman kenal di kegiatan ospek aja, tapi tetap kenal kedepannya.
 
+## Harapan Kuliah ##
+Menjadi pribadi yang bisa tetap berkembang dengan memanfaatkan waktu serta kesempatan sebaik baiknya, dan memiliki banyak pengalaman, ilmu, prestasi serta relasi selama di perkuliahan dan setelah tamat menjadi pribadi yang mempunyai keahliaan yang bisa memberikan dampak kepada banyak orang.
+ 
